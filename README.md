@@ -1,1 +1,1 @@
-If I had anything good to say about myself, it would be here. 
+Wanna learn how to draw but have other stuff. I exploit school Chromebooks as a way to entertain myself.
